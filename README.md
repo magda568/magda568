@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @magda568
-- 👀 I’m interested in reading books
+- 👀 I’m interested in reading books and volleyball
 - 🌱 I’m currently learning program and create websites
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me ...
